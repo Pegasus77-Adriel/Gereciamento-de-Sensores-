@@ -1,0 +1,1 @@
+# Gereciamento-de-Sensores-
